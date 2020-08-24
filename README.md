@@ -1,1 +1,0 @@
-# rasch_5scale
